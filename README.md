@@ -17,3 +17,6 @@
 
 ![figure](https://github.com/Andmr2/PP-3/assets/168850249/231ec854-8d77-4f54-8453-833d71953bdb)
 
+
+
+![figure](https://github.com/Andmr2/PP-3/assets/168850249/6b5f60c7-1b2f-41ca-9873-a9d25880e354)
