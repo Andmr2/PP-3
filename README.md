@@ -26,3 +26,8 @@
 
 
 ![figure](https://github.com/Andmr2/PP-3/assets/168850249/2d7de82a-9ca3-4545-84b5-89ac227b2c39)
+
+
+
+
+![figure](https://github.com/Andmr2/PP-3/assets/168850249/861f0d95-2e1b-4a5d-a531-56658065eeba)
